@@ -10,3 +10,6 @@
 
 
 adriano.pinto.davi@escola.pr.gov.br
+
+![](https://media1.tenor.com/m/QhEaMm0jBT8AAAAd/reels-funny-memes.gif)
+![](https://media.tenor.com/nMCRF_FnRbUAAAAi/man-face.gif)
